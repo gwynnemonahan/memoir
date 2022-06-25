@@ -31,7 +31,7 @@ _Motions to elaborate puzzle on the large square glass coffee table_.
 
 **Defense**: What specifically?
 
-**Me**, r_eaches for phone, opens Gmail app, switches to work account, scrolls to message, opens and reads aloud_: You gave the contributors all the credit, but failed to keep any for yourself — this blog wouldn’t be the success it is without your dedication and leadership. Kudos! All the best.
+**Me**, _reaches for phone, opens Gmail app, switches to work account, scrolls to message, opens and reads aloud_: You gave the contributors all the credit, but failed to keep any for yourself — this blog wouldn’t be the success it is without your dedication and leadership. Kudos! All the best.
 
 **Defense**: But you think you’re just doing your job, and aren't really dedicated and certainly not leading.
 
